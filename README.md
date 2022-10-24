@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cherry-now here(WITH broken english)(cryyyyyyyyy!!!!!!!)
+- 👋 Hi, @cherry-now here(WITH broken english)(cryyyyyyyyy!!!!!!!)
 - 👀  (WHO can HELP me in learning ENGLISHhhhhh!!!
 - 🌱 A Carbon-based life 
 - 💞️ live for myself(ing
