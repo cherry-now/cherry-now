@@ -2,7 +2,7 @@
 - 👀  (WHO can HELP me in learning ENGLISHhhhhh!!!
 - 🌱 A Carbon-based life 
 - 💞️ live for myself(ing
-- 📫 ...
+- 📫 ...✨✨✨
 
 <!---
 cherry-now/cherry-now is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
